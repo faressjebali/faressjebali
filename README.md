@@ -22,4 +22,4 @@ Telecom & networks engineering student at **INSAT** (Tunisia), focused on **appl
 
 #### 📫 Contact
 
-[LinkedIn](https://www.linkedin.com/in/fares-jebali-08155a321) · [faressjebali.github.io](https://faressjebali.github.io)
+[LinkedIn](https://www.linkedin.com/in/fares-jebali) · [faressjebali.github.io](https://faressjebali.github.io)
